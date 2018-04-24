@@ -24,7 +24,7 @@ I like meetups, especially when I'm among the organizers, in the past week I hav
 
 Okay. it's time to conclude:
 
-I worst thing I hate in my life is the fact that I spent 18 years of my life studying in French because now I need to learn everything in English and communicate with people in English. It's not easy every time I speak English I think that I have a French accent.
+I worst thing I hate in my life is the fact that I spent 18 years of my life studying in French because now I need to learn everything in English and communicate with people in English. It's not easy because  every time I speak English I have an impression that people looks at me and : *say what are you talking about with your french accent?*
 
 Okay; I hate that blogging stuff, I can't even have a one-page blog post about me.
 I will be back the next time I will have ideas to write about.
