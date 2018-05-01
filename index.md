@@ -22,6 +22,10 @@ One of my dreams is to lead a team of software developers.
 
 I like meetups, especially when I'm among the organizers, in the past week I have hosted the maiden edition of forloopRwanda the largest developer community in Rwanda, I'm proud  of what I have done during this meetup, I didn't speak but I was the unsung heroes of the event my job was to make sure  that everything was working perfectly during the meetup and every attendee was comfortable.
 
+And beside coding?
+
+Besides coding, I like watching football, playing fantasy football, listening music.. oh (RIP Avicii), reading the bible and teaching people about it ( yes I’m a Jéhovah Witness) and spending quality time with my family.
+
 Okay. it's time to conclude:
 
 I worst thing I hate in my life is the fact that I spent 18 years of my life studying in French because now I need to learn everything in English and communicate with people in English. It's not easy every time I speak English I think that I have a French accent.
